@@ -20,3 +20,4 @@ Online multiplayer
 
 🧑‍💻 Author
 Made with 💙 by Aniket Pradhan
+Insta - @dreamingisart12
